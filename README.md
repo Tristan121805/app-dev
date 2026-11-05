@@ -28,6 +28,7 @@ this movie was created at june 20, 2013 directed by Marc Forster also distribute
     [World War Z](https://putlocker.fi/details?id=72190&type=movie)
 
 | Info | Details |
+|------|---------|
 | Creator | [Marc Forster] |
 | Genre | [Action, Horror, Sci-Fi, Thriller, and Apocalyptic] |
 | Release Year | [June 20, 2013] |
